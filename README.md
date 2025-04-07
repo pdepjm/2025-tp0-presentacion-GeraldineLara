@@ -7,4 +7,5 @@
 
   *Sin más, dejo una foto de mi y me desipido. Saludos!*
 
-  ![WhatsApp Image 2025-04-07 at 14 46 37](https://github.com/user-attachments/assets/c22bbae0-72f2-4875-baeb-643d3bb075e5)
+  
+![WhatsApp Image 2025-04-07 at 14 50 22](https://github.com/user-attachments/assets/93d278f3-8330-4570-bcfa-16538eb1d8ec)
